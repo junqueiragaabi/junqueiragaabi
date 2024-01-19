@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Gabriela Junquiera
-- 👀 I’m interested in Ecology and Data Visualization 
+- 👀 I’m interested in Diatoms, Ecology and Data Visualization 
 
